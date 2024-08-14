@@ -1,1 +1,1 @@
-Could've been written by ChatGPT, but it wasn't. 
+Could've been written by ChatGPT. It wasn't. 
